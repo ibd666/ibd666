@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ibd666
+- 👀 I’m interested in sms programming 
+- 📫 How to reach me portillo066@outlook.com
